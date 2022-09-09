@@ -4,3 +4,4 @@
 3. Pride is worth more than hunger, thirst and cold.
 4. Take responsibility for your actions. We all make mistakes. There is no point in blaming others.
 5. Get out of your comfort zone. Try something new. You might like it.
+6. Don't cackle until you've laid an egg
